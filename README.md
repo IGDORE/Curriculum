@@ -1,2 +1,2 @@
 # Curriculum
-Continuosly optimizing the IGDORE curriculum
+Continuously optimizing the IGDORE curriculum and our consultancy services
